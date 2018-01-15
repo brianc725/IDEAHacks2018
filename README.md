@@ -1,1 +1,0 @@
-# IDEAHacks2018
